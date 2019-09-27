@@ -1,0 +1,2 @@
+# MindManager_2017_windows
+MindManager_2017_windows 含cdkey
